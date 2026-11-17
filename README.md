@@ -1,9 +1,7 @@
-![](https://tenor.com/view/star-divider-gif-4918305844451274520.gif)
+hi im sushi/salmon
 
-hi im sushi
+![](https://tenor.com/view/pitaya-dragon-cookie-pitaya-dragon-crk-cookie-run-kingdom-crob-gif-1605191133099647453)
 
-im yatta irl trust me bro
-
-![](https://tenor.com/view/dandys-world-gif-11590140112312091952.gif)
+![](https://tenor.com/pF2quhK2oH9.gif)
 
 sign my strawpage? pls?
