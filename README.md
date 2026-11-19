@@ -5,3 +5,5 @@ hi im sushi/salmon
 ![](https://tenor.com/pF2quhK2oH9.gif)
 
 sign my strawpage? pls?
+
+eng / pt-br
