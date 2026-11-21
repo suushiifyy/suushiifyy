@@ -7,3 +7,5 @@ hi im sushi/salmon
 sign my strawpage? pls?
 
 eng / pt-br
+
+dni 18+ unless friend ok bye
